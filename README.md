@@ -15,3 +15,5 @@ KAngel ⋆ He/Him ⋆ 15
 INFP ⋆ Enneagram type 9
 
 ![image](https://64.media.tumblr.com/ead727db84dfc0162e7adbacc0ded202/1aefeced37ef47a9-a6/s100x200/85c1d1c05a70e62c1430b7220ae5b67fd03c5811.webp)
+![image](https://64.media.tumblr.com/8378bab90b71ef16ff7068f5c1173a31/1aefeced37ef47a9-05/s100x200/45b9bf7cc27a177e22782c67d7d04d5c946102ed.gifv)
+![image](https://64.media.tumblr.com/c2f0682aa59aeb9588898fc168138664/1aefeced37ef47a9-7d/s100x200/2a55194ed2b3201a39306f6542cc651b3b8195ef.webp)
