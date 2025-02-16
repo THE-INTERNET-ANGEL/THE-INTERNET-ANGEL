@@ -14,6 +14,8 @@ welcome to my page!!
 KAngel ⋆ He/Him ⋆ 15
 <p align="center">
 INFP ⋆ Enneagram type 9
+<p align="center">
+HTML coder ONLY!
 
 ![image](https://64.media.tumblr.com/9c5e42aa94c5388eba5f5f68b6d67196/e4a0bbfbab0a44fe-23/s100x200/cee6d4d05cabbcf296354e9c91994160c23a3316.pnj)
 ![image](https://64.media.tumblr.com/3ed765f3c2169b34e1437bafff243af5/21317507f7352712-58/s100x200/cf38c13bcc6aec64c29ea201b9e4240f05453669.gifv)
