@@ -32,4 +32,4 @@ curently learning Javascript AND CSS!
 ![image](https://64.media.tumblr.com/4bb1a217cf3e370cde5b8144399cc3f3/1aefeced37ef47a9-0a/s100x200/e7dfd08b3a35f429d072ec6b7fbc9fcba8437a64.webp)
 ![image](https://64.media.tumblr.com/13e6f4d9e7b78a53cdb21a065a05692c/1aefeced37ef47a9-82/s100x200/a24a1677d860ef3d68e48c7228484f8f8fc80742.gifv)
 ![image](https://64.media.tumblr.com/71f0008a671a4ddf93ed8aa5ee382f48/29f3e687d4a4e8a9-ba/s100x200/39c12c5922d7813a333270425afa3dfb55016637.gifv)
-![image](https://64.media.tumblr.com/48b5da63b7a3585910ea79e582f9e256/1aefeced37ef47a9-f9/s100x200/36e9b7ff40d5c341ff954774aec3502bbc08c71e.webp)
+![image](https://64.media.tumblr.com/e8d27381eec65045e0bcd04e21e3d8f7/25bc0f925f97076d-f0/s250x400/11397c72b1f7877c405e08887a096800af8b5514.gifv)
