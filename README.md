@@ -31,6 +31,6 @@ curently learning Javascript AND CSS!
 ![image](https://64.media.tumblr.com/c2f0682aa59aeb9588898fc168138664/1aefeced37ef47a9-7d/s100x200/2a55194ed2b3201a39306f6542cc651b3b8195ef.webp)
 ![image](https://64.media.tumblr.com/4bb1a217cf3e370cde5b8144399cc3f3/1aefeced37ef47a9-0a/s100x200/e7dfd08b3a35f429d072ec6b7fbc9fcba8437a64.webp)
 ![image](https://64.media.tumblr.com/13e6f4d9e7b78a53cdb21a065a05692c/1aefeced37ef47a9-82/s100x200/a24a1677d860ef3d68e48c7228484f8f8fc80742.gifv)
-![image](https://64.media.tumblr.com/71f0008a671a4ddf93ed8aa5ee382f48/29f3e687d4a4e8a9-ba/s100x200/39c12c5922d7813a333270425afa3dfb55016637.gifv)
+![image](https://64.media.tumblr.com/5420e8e9d2b012b9f39319d9287f1305/4d0bf2900e0cb8a7-57/s100x200/f2757fc8ce9f43c61316d73ffb64ca3aeace162e.pnj)
 ![image](https://64.media.tumblr.com/e8d27381eec65045e0bcd04e21e3d8f7/25bc0f925f97076d-f0/s250x400/11397c72b1f7877c405e08887a096800af8b5514.gifv)
 ![image](https://64.media.tumblr.com/0cff00d7dfb758df4e1ba77ec7b73761/1aefeced37ef47a9-cb/s100x200/4437a20c611c5534684c79f3331ab2cf8d32a8ae.gifv)
